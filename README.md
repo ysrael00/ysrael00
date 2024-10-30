@@ -2,7 +2,6 @@
 - 🔭 I’m currently working on front-end
 - 🌱 I’am currently studying a bachelor's degree in software engineering
 - 💌 My contact: ysrael.k99@gmail.com </> +5571982667580
-- 😄 Pronouns: (He</>Him) 
 - ⚡ Fun fact: I love souls like ✌️
 
 ## 🌐 Socials:
