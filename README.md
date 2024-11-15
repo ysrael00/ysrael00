@@ -2,7 +2,7 @@
 - 🔭 I’m currently working on front-end
 - 🌱 I’am currently studying a bachelor's degree in software engineering
 - 💌 My contact: ysrael.k99@gmail.com </> +5571982667580
-- ⚡ Fun fact: I love souls like ✌️
+- ⚡ Fun fact: I love souls like and JRPG✌️
 
 ## 🌐 Socials:
 [![Discord](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](https://discord.gg/momo2789) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/https://www.linkedin.com/in/israel-oliveira-69b445204/) [![Twitch](https://img.shields.io/badge/Twitch-%239146FF.svg?logo=Twitch&logoColor=white)](https://twitch.tv/https://www.twitch.tv/namellesskingg) 
