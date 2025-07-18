@@ -1,5 +1,4 @@
 ## Hello World👋
-- 🌱 I’am currently studying a bachelor's degree in software engineering
 - 💌 My contact: ysrael.k99@gmail.com </> +5571982667580
 - ⚡ Fun fact: I love souls like and JRPG✌️
 
